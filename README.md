@@ -1,5 +1,5 @@
 # <a href="https://cdn.rawgit.com/ogate/up/master/oGates.htm?from=gy">翻墙通道1</a>
-# <a href="https://s3.eu-west-2.amazonaws.com/ogatel/oGate.htm?from=gy">翻墙通道2</a>
+# <a href="https://gyhc.azureedge.net/oGate.htm?from=gy-2">翻墙通道2</a>
 # <a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?from=gy">翻墙通道3</a>
 # <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/oGate.htm?from=gy">翻墙通道4</a>
 # <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?from=gy">翻墙通道5</a>
