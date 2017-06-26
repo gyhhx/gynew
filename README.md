@@ -1,7 +1,5 @@
-  <tr>
-  <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/title1.jpg" /></td>  
-  </tr>
- <tr>
+ 
+<tr>
   <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/%E5%BE%AE%E4%BF%A1%E8%AF%B4%E6%98%8E4.jpg" /></td>  
   </tr>
   
