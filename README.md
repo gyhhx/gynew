@@ -10,6 +10,13 @@
 
 # <a href="https://raw.githubusercontent.com/ogate/up/master/ogate.apk">安卓一键翻墙app</a> 
 ## 〓〓永久免费〓〓安全匿名〓〓及时下载〓〓长期翻墙
+
+   <tr>
+  <td align=center>
+  <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c816846_2_1&from=gy">视频短片：为了您的未来，请您加入</a><br/>
+      <a href="https://gyqxb.azureedge.net/ogST.aspx?from=gy"><b>〓〓〓君子不立危墙之下〓〓〓<br/></a>
+      </td>
+  </tr>
  <tr>
     <td align=center><img src="https://github.com/gyhhx/image/blob/master/gy2-1.jpg" /></td>
  </tr>
