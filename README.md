@@ -26,7 +26,3 @@
 # <a href="https://raw.githubusercontent.com/ogate/up/master/ogate.apk">安卓一键翻墙app</a> 
 ## 〓〓永久免费〓〓安全匿名〓〓及时下载〓〓长期翻墙
 
- 
- <tr>
-    <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/%E5%BE%AE%E4%BF%A1%E8%AF%B4%E6%98%8E.jpg" /></td>
- </tr>
