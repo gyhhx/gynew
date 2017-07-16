@@ -14,12 +14,12 @@
 ### ◆请尝试不同通道。通过【微信】或【扫码】的用户请点右上角三个点，按“在浏览器中打开”。
 <tr>
     <td align=center>
-◆推荐使用谷歌或火狐浏览器<br/>
+### ◆推荐使用谷歌或火狐浏览器<br/>
 <a href="https://chrome.cn.uptodown.com/android">谷歌安卓版、</a>
 <a href="https://google-chrome.cn.uptodown.com/windows">win版、</a>
 <a href="https://chrome.cn.uptodown.com/iphone">苹果版、</a>
 <a href="https://google-chrome.cn.uptodown.com/mac">Mac版</a><br/>
-◆国产浏览器干扰浏览，请卸载<br/>
+### ◆国产浏览器干扰浏览，请卸载<br/>
 </td>
   </tr>
 
