@@ -21,6 +21,6 @@
 ### ◆国产浏览器干扰浏览，请卸载<br/>
 
 
-# <a href="http://t.cn/RKFCJSe">安卓一键翻墙app</a> 
+# <a href="http://t.cn/R9ITHS5">安卓一键翻墙app</a> 
 ## 〓〓永久免费〓〓安全匿名〓〓及时下载〓〓长期翻墙
 
