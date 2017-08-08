@@ -5,7 +5,7 @@
   <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/%E5%BE%AE%E4%BF%A1%E8%AF%B4%E6%98%8E4.jpg" /></td>  
 </tr> 
 
-# <a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?from=gygit2">翻墙通道</a>
+# <a href="https://s3.amazonaws.com/ogate/oGate.htm?from=gygit2">翻墙通道</a>
 # <a href="https://s3-us-west-1.amazonaws.com/ogaten/oGate.htm?from=gygit1">翻墙通道</a>
 # <a href="https://s3.us-east-2.amazonaws.com/ogateh/oGate.htm?from=gygit3">翻墙通道</a>
 # <a href="https://s3.eu-west-2.amazonaws.com/ogatel/oGate.htm?from=gygit4">翻墙通道</a>
