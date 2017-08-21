@@ -25,4 +25,4 @@
 # <a href="http://t.cn/RCxtbOo">安卓一键翻墙app</a> 
 ## 〓〓不限时长〓〓安全匿名〓〓及时下载〓〓长期翻墙
 
-# 长期使用网页版请收藏：https://git.io/gy
+# 长期使用网页版请收藏👉👉https://git.io/gy
