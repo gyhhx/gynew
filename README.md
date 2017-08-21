@@ -14,13 +14,13 @@
 ### ◆请尝试不同通道。通过【微信】或【扫码】的用户请点右上角三个点，按“在浏览器中打开”。
 
 ### ◆推荐使用谷歌或火狐浏览器<br/>
-<a href="https://chrome.cn.uptodown.com/android">谷歌安卓版、</a>
-<a href="https://google-chrome.cn.uptodown.com/windows">win版、</a>
-<a href="https://chrome.cn.uptodown.com/iphone">苹果版、</a>
-<a href="https://google-chrome.cn.uptodown.com/mac">Mac版</a><br/>
+<a href="http://t.cn/RCMTF83">谷歌安卓版</a>
+<a href="http://t.cn/RCMTHNv">谷歌电脑版（绿色免安装）</a>
+<a href="http://t.cn/RCMHf8Y">火狐手机版（安卓）</a>
+<a href="http://t.cn/RCMHysU">火狐电脑版</a><br/>
 ### ◆国产浏览器干扰浏览，请卸载<br/>
 
 
-# <a href="http://t.cn/R9BovJJ">安卓一键翻墙app</a> 
+# <a href="http://t.cn/RCxtbOo">安卓一键翻墙app</a> 
 ## 〓〓永久免费〓〓安全匿名〓〓及时下载〓〓长期翻墙
 
