@@ -5,12 +5,11 @@
   <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/%E5%BE%AE%E4%BF%A1%E8%AF%B4%E6%98%8E4.jpg" /></td>  
 </tr> 
 
-### ◆推荐使用谷歌或火狐浏览器<br/>
+### ◆推荐使用谷歌或火狐浏览器（国产浏览器干扰浏览，请卸载）<br/>
 <a href="http://t.cn/RCMTF83">谷歌手机版（安卓）</a></br>
 <a href="http://t.cn/RCMTHNv">谷歌电脑版（绿色免安装）</a></br>
 <a href="http://t.cn/RCMHf8Y">火狐手机版（安卓）</a></br>
 <a href="http://t.cn/RCMHysU">火狐电脑版</a><br/>
-### ◆国产浏览器干扰浏览，请卸载<br/>
 
 
 
