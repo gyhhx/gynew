@@ -6,7 +6,7 @@
 </tr>
 
 
-# <a href="htthttp://t.cn/RCxwYLP">网门一键翻墙 安卓app (点我下载）</a>
+# <a href="http://t.cn/RCxwYLP">网门一键翻墙 安卓app (点我下载）</a>
 ### 〓〓不限时长〓〓安全匿名〓〓及时下载〓〓长期翻墙
 
 
