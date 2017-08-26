@@ -12,8 +12,8 @@
 
 # <a href="https://s3-eu-west-1.amazonaws.com/ogatei/oGate.htm?from=gygit6">翻墙通道1</a>
 # <a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?from=oGate?from=gygitc">翻墙通道2</a>
+# <a href="https://s3-us-west-1.amazonaws.com/ogaten/oGate.htm?from=gygit1">翻墙通道4 (微信中请点屏幕底部“访问原网页”）</a>
 # <a href="https://s3.amazonaws.com/ogate/oGate.htm?from=gygit2">翻墙通道3</a>
-# <a href="https://s3-us-west-1.amazonaws.com/ogaten/oGate.htm?from=gygit1">翻墙通道4</a>
 # <a href="https://s3.eu-west-2.amazonaws.com/ogatel/oGate.htm?from=gygit4">翻墙通道5</a>
 # <a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?from=gygit5">翻墙通道6</a>
 
