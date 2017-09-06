@@ -6,7 +6,7 @@
 </tr>
 
 
-# <a href="http://t.cn/RCxwYLP">网门一键翻墙 安卓app (点我下载）</a>
+# <a href="https://t.cn/Rp7Spgg">网门一键翻墙 安卓app 2017年9月6日更新 (点我下载）</a>
 ### 〓〓不限时长〓〓安全匿名〓〓及时下载〓〓长期翻墙
 
 
@@ -26,4 +26,4 @@
 <a href="http://t.cn/RCS0P53">火狐电脑版</a><br/>
 
 
-# 长期使用网页版请收藏👉👉https://git.io/gy
+# 长期使用网页版请收藏👉👉https://git.io/ogate2
