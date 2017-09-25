@@ -12,18 +12,14 @@
 
 # <a href="https://s3-eu-west-1.amazonaws.com/ogatei/oGate.htm?from=gygit">翻墙通道1</a>
 # <a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?from=oGate?from=gygit">翻墙通道2</a>
-# <a href="https://s3-us-west-1.amazonaws.com/ogaten/oGate.htm?from=gygit">翻墙通道4 (微信中请点屏幕底部“访问原网页”）</a>
+# <a href="https://s3-us-west-1.amazonaws.com/ogaten/oGate.htm?from=gygit">翻墙通道4</a>
 # <a href="https://s3.amazonaws.com/ogate/oGate.htm?from=gygit">翻墙通道3</a>
 # <a href="https://s3.eu-west-2.amazonaws.com/ogatel/oGate.htm?from=gygit">翻墙通道5</a>
 # <a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?from=gygit">翻墙通道6</a>
 
 ### ◆请尝试不同通道。通过【微信】或【扫码】的用户请点右上角三个点，按“在浏览器中打开”。
 
-### ◆推荐使用谷歌或火狐浏览器（国产浏览器干扰浏览，请卸载）<br/>
-<a href="http://t.cn/RCSp1nX">谷歌手机版（安卓）</a></br>
-<a href="http://t.cn/RCSpFgG">谷歌电脑版（绿色免安装）</a></br>
-<a href="http://t.cn/RCSpgCO">火狐手机版（安卓）</a></br>
-<a href="http://t.cn/RCS0P53">火狐电脑版</a><br/>
+
 
 
 # 长期使用网页版请收藏👉👉https://git.io/ogate2
