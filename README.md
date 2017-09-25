@@ -21,4 +21,4 @@
 
 
 # 固定网址请收藏👉👉https://git.io/ogate2
-# 备用网址👉👉https://git.io/lift
+# 备用网址👉👉https://git.io/olift
