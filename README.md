@@ -19,6 +19,7 @@
 
 ### ◆请尝试不同通道。通过【微信】或【扫码】的用户请点右上角三个点，按“在浏览器中打开”。
 
+# <a href="https://github.com/gyhhx/gy1/blob/master/README.md">墙外头条　每日滚动更新</a>
 
 # 固定网址请收藏👉👉https://git.io/ogate2
 # 备用网址👉👉https://git.io/olift
