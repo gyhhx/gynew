@@ -6,7 +6,7 @@
 </tr>
 
 
-# <a href="http://t.cn/RY3HwLt">网门　■一键翻墙■ 安卓APP 2017年11月27日 更新版 (点我下载）</a>
+# <a href="http://t.cn/RY3HwLt">网门　■一键翻墙■ 安卓APP 2017年12月6日 更新版 (点我下载）</a>
 ### 〓〓不限时长〓〓安全匿名〓〓及时下载〓〓长期翻墙
 
 # <a href="https://s3-us-west-1.amazonaws.com/ogaten/oGate.htm?from=oGate">翻墙通道1</a>
