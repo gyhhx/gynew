@@ -8,7 +8,7 @@
 # <a href="http://41346234.wx.tq.xn--lavamki-9wa.fi/show.htm?ogNews&from=gitgy">▲▲▲墙外头条  实时更新▲▲▲</a>
 
 
-# <a href="http://t.cn/RTk8U6c">网门　■一键翻墙■ 安卓APP 2017年12月更新 (点我下载）</a>
+# 网门 <a href="http://t.cn/RTk8U6c">　■一键翻墙■ 安卓APP 2017年12月更新 (点我下载）</a>
 ### 〓〓不限时长〓〓安全匿名〓〓及时下载〓〓长期翻墙
 
    #  <a target="_blank" href="https://s3.ap-south-1.amazonaws.com/ogatem/show.htm?from=gitgy">翻墙通道1</a><br/>
