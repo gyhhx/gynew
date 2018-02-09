@@ -5,7 +5,7 @@
   <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/%E5%BE%AE%E4%BF%A1%E8%AF%B4%E6%98%8E4.jpg" /></td>  
 </tr>
 
- # <a href="http://41346234.wx.tq.xn--lavamki-9wa.fi/show.htm?ogNews&from=gy">👉👉▲▲▲墙外头条  实时更新▲▲▲</a>
+ # <a href="http://35246234.ed.emakc.ru/show.htm?ogNews&from=gy">👉👉▲▲▲墙外头条  实时更新▲▲▲</a>
 
 ### 〓〓不限时长〓〓安全匿名〓〓及时下载〓〓长期翻墙
 # <a href="http://t.cn/RQIuSkF">👉👉网门　■一键翻墙■ 安卓APP 2018年1月更新 (点我下载）</a>
