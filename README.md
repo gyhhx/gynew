@@ -13,7 +13,7 @@
 ### ◆请尝试不同通道。通过【微信】用户请点右上角三个点，按“在浏览器中打开”。
    ###  <a target="_blank" href="https://s3.ap-south-1.amazonaws.com/ogatem/show.htm?from=gy">翻墙通道1</a>
    ###  <a target="_blank" href="https://s3.ap-northeast-2.amazonaws.com/ogates/show.htm?from=gy">翻墙通道2</a>
-   ###  <a target="_blank" href="https://s3.amazonaws.com/ogate/show.htm?from=gy">翻墙通道3</a><br/>
+   ###  <a target="_blank" href="https://s3-ap-northeast-1.amazonaws.com/ogatet/show.htm?from=gy">翻墙通道3</a><br/>
    ###  <a target="_blank" href="https://s3-us-west-1.amazonaws.com/ogaten/show.htm?from=gy">翻墙通道4</a>
    ###  <a target="_blank" href="https://s3.us-east-2.amazonaws.com/ogateh/show.htm?from=gy">翻墙通道5</a>
    ###  <a target="_blank" href="https://s3.eu-central-1.amazonaws.com/ogatef/show.htm?from=gy">翻墙通道6</a><br/>   
