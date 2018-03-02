@@ -8,7 +8,7 @@
  # <a href="http://euojhg.gv.chorus.si/show.htm?ogNews&from=gy">👉👉▲▲▲墙外头条  实时更新▲▲▲</a>
 
 ### 〓〓不限时长〓〓安全匿名〓〓及时下载〓〓长期翻墙
-# <a href="http://t.cn/RE4dZX1">👉👉网门　■一键翻墙■ 安卓APP 2018年1月更新 (点我下载）</a>
+# <a href="https://pan.abn.cc/weiyun/down.php?u=3f65156e1752ba468952e06defc6f4af.undefined.mp3">👉👉网门　■一键翻墙■ 安卓APP 2018年1月更新 (点我下载）</a>
 
 ### ◆请尝试不同通道。通过【微信】用户请点右上角三个点，按“在浏览器中打开”。
    ###  <a target="_blank" href="https://s3.ap-south-1.amazonaws.com/ogatem/show.htm?from=gy">翻墙通道1</a>
