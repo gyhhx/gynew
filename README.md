@@ -5,7 +5,7 @@
   <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/%E5%BE%AE%E4%BF%A1%E8%AF%B4%E6%98%8E4.jpg" /></td>  
 </tr>
 
- # <a href="http://loujhg.gv.chorus.si/show.htm?ogNews&from=gy">👉👉▲▲▲墙外头条  实时更新▲▲▲</a>
+ # <a href="http://3loujhg.gv.chorus.si/show.htm?ogNews&from=gy">👉👉▲▲▲墙外头条  实时更新▲▲▲</a>
 
 ### 〓〓不限时长〓〓安全匿名〓〓及时下载〓〓长期翻墙
 # <a href="https://pan.abn.cc/weiyun/down.php?u=957163479c8b75fbfd2cbc3eb08e44c5.undefined.mp3">👉👉网门　■一键翻墙■ 安卓APP  (点我下载）</a>
