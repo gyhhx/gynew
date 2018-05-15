@@ -9,15 +9,15 @@
 # <a href="https://raw.githubusercontent.com/opipe/Up/master/Tools/og.apk">👉👉网门　■一键翻墙■ 安卓APP  (点我下载）</a>
 
 ### ◆请尝试不同通道。通过【微信】用户请点右上角三个点，按“在浏览器中打开”。
-   ###  <a target="_blank" href="https://s3.ap-south-1.amazonaws.com/ogatem/show.htm?from=gy">翻墙通道1</a>
-   ###  <a target="_blank" href="https://s3.ap-northeast-2.amazonaws.com/ogates/show.htm?from=gy">翻墙通道2</a>
+   ###  <a target="_blank" href="https://s3.us-east-2.amazonaws.com/ogateh/show.htm?from=gy">翻墙通道1</a>
+   ###  <a target="_blank" href="https://s3.eu-west-2.amazonaws.com/ogatel/show.htm?from=gy">翻墙通道2</a>
    ###  <a target="_blank" href="https://konhgd.global.ssl.fastly.net/?from=gy">翻墙通道3</a><br/>
-   ###  <a target="_blank" href="https://s3-us-west-1.amazonaws.com/ogaten/show.htm?from=gy">翻墙通道4</a>
-   ###  <a target="_blank" href="https://s3.us-east-2.amazonaws.com/ogateh/show.htm?from=gy">翻墙通道5</a>
-   ###  <a target="_blank" href="https://s3.eu-central-1.amazonaws.com/ogatef/show.htm?from=gy">翻墙通道6</a><br/>   
-   ###  <a target="_blank" href="https://s3.eu-west-2.amazonaws.com/ogatel/show.htm?from=gy">翻墙通道7</a>
+   ###  <a target="_blank" href="https://s3.ap-northeast-2.amazonaws.com/ogates/show.htm?from=gy">翻墙通道4</a>
+   ###  <a target="_blank" href="https://s3.eu-central-1.amazonaws.com/ogatef/show.htm?from=gy">翻墙通道5</a>
+   ###  <a target="_blank" href="https://s3.ap-south-1.amazonaws.com/ogatem/show.htm?from=gy">翻墙通道6</a><br/>   
+   ###  <a target="_blank" href="https://s3-us-west-1.amazonaws.com/ogaten/show.htm?from=gy">翻墙通道7</a>
    ###  <a target="_blank" href="https://s3.ca-central-1.amazonaws.com/ogatec/show.htm?from=gy">翻墙通道8</a>
-   ###  <a target="_blank" href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?from=gy">翻墙通道9</a>
+   ###  <a target="_blank" href="https://s3-ap-northeast-1.amazonaws.com/ogatet/show.htm?from=gy">翻墙通道9</a>
 
 <tr>
   <td align=center><img src=" https://github.com/gyhhx/image-upload/blob/master/ogate-c.JPG" /></td>  
