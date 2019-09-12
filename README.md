@@ -2,14 +2,7 @@
 <tr>
   <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/%E5%BE%AE%E4%BF%A1%E8%AF%B4%E6%98%8E4.jpg" /></td>  
 </tr>
-<tr>
-<td align=center>
- <b>〓〓〓〓〓〓〓〓〓〓〓<br/>网门 安卓版【新版】<br/> ●安全匿名<br/> ●一键翻墙<br/>  ●不限时长<br/> 
- <a href="https://share.weiyun.com/5f7q4FC">👉<b>点我下载</a><br/>〓〓〓〓〓〓〓〓〓〓〓<br/>
-    </td>
-    </tr>
-</table>
-  
+ 
 # 墙外头条  实时更新</a>
 
 <table>
