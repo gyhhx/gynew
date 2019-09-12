@@ -2,23 +2,16 @@
 <tr>
   <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/%E5%BE%AE%E4%BF%A1%E8%AF%B4%E6%98%8E4.jpg" /></td>  
 </tr>
+<tr>
+<td align=center>
+ <b>〓〓〓〓〓〓〓〓〓〓〓<br/>网门 安卓版【新版】<br/> ●安全匿名<br/> ●一键翻墙<br/>  ●不限时长<br/> 
+ <a href="https://share.weiyun.com/5f7q4FC">👉<b>点我下载</a><br/>〓〓〓〓〓〓〓〓〓〓〓<br/>
+    </td>
+    </tr>
 
-### 〓〓不限时长〓〓安全匿名〓〓及时下载〓〓长期翻墙
-# <a href="https://share.weiyun.com/5f7q4FC">👉👉网门　■一键翻墙■ 安卓APP  (点我下载）</a>
-
-# 👉👉墙外头条  实时更新</a>
+#### 墙外头条  实时更新</a>
 <table>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c816857&key=nqynnipsxfbxcbni&from=gy">文昭：谈古论今</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c972635&key=nqynnipsxfbxcbni&from=gy">石涛：News</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c922850&key=nqynnipsxfbxcbni&from=gy">江峰时刻</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c974449&key=nqynnipsxfbxcbni&from=gy">吴建民</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c816932&key=nqynnipsxfbxcbni&from=gy">陈破空：纵论天下</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c817120&key=nqynnipsxfbxcbni&from=gy">阿波罗新闻</a></td></tr>
 <tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c939723&key=nqynnipsxfbxcbni&from=gy">【精彩推荐】罗宇：习近平确实出事了</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1054123&key=nqynnipsxfbxcbni&from=gy">冷山：时评</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c816850&key=nqynnipsxfbxcbni&from=gy">石涛：今日点击</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c815000&key=nqynnipsxfbxcbni&from=gy">美国之音中文</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c838308&key=nqynnipsxfbxcbni&from=gy">李沐阳：新闻看点</a></td></tr>
 <tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1033298&key=nqynnipsxfbxcbni&from=gy">直播反送中，香江望神州</a></td></tr>
 <tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c923863&key=nqynnipsxfbxcbni&from=gy">时事大家谈</a></td></tr>
 <tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1072983&key=nqynnipsxfbxcbni&from=gy">陈破空：马云退休演讲 叫板习主席？美国鹰派离职 北京高兴不起来 德国外长打脸土共</a></td></tr>
