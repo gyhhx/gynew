@@ -3,7 +3,7 @@
   <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/%E5%BE%AE%E4%BF%A1%E8%AF%B4%E6%98%8E4.jpg" /></td>  
 </tr>
  
-# 墙外头条  实时更新</a>
+# 外媒头条</a>
 
 <table>
 <tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c939723&key=nqynnipsxfbxcbni&from=gy">【精彩推荐】罗宇：习近平确实出事了</a></td></tr>
