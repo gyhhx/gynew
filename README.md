@@ -205,7 +205,7 @@
 <tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075051&key=nqynnipsxfbxcbni&from=gy">妻遭警察翻墙入室劫走 丈夫奔走营救</a></td></tr>
 <tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075100&key=nqynnipsxfbxcbni&from=gy">何清涟/博尔顿：生不逢时的全球战略家</a></td></tr>
 <tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075156&key=nqynnipsxfbxcbni&from=gy">曾节明：北京宁可引进非洲黑人 也要让计划生育卷土重来</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075315&key=nqynnipsxfbxcbni&from=gy">程晓容：BBC访谈 陈方安生犀利回击中共</a></td></tr>
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1075325&key=nqynnipsxfbxcbni&from=gy">移民领取中国退休金 须向加拿大申报</a></td></tr>
+<tr><td align="left"><a href="https://xurl.store/LEwE8j911">程晓容：BBC访谈 陈方安生犀利回击中共</a></td></tr>
+<tr><td align="left"><a href="https://xurl.store/LTEtKSOUz">移民领取中国退休金 须向加拿大申报</a></td></tr>
 
 </table>
