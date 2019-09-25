@@ -12,9 +12,6 @@
 <tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1077463&key=nqynnipsxfbxcbni&from=gynew">天灭中共？大陆庆十一巨型花篮起火焚毁</a></td></tr>
 
 
-<tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1077435&key=nqynnipsxfbxcbni&from=gynew">天灭中共？大陆庆十一巨型花篮起火焚毁</a></td></tr>
-
-
 <tr><td align="left"><a href="https://xwood.fun/oo.aspx?name=c1077354&key=nqynnipsxfbxcbni&from=gynew">来稿：延安古老性病在昆明政府迅速传播 正通过各种渠道传向全社会！</a></td></tr>
 
 
