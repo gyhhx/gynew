@@ -3,7 +3,7 @@
   <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/%E5%BE%AE%E4%BF%A1%E8%AF%B4%E6%98%8E4.jpg" /></td>  
 </tr>
 
-## <请及时收藏本站网址> </a>
+## <请及时收藏本站网址 http://rrd.me/eEMLu > </a>
 # 外媒头条 2019年10月16日</a>
 
 <table>
