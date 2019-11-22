@@ -19,6 +19,9 @@
 <tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1097985&key=eqxowaguscvmxdgc&from=gy">陶杰：美国等到了这张牌</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1097951&key=eqxowaguscvmxdgc&from=gy">港警暴行 由共匪中央政法委直接指挥 事后再枪毙警察和局长早有先例</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1097997&key=eqxowaguscvmxdgc&from=gy">【禁闻】前英驻港领馆职员: 大批示威者被送中国</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c816850&key=eqxowaguscvmxdgc&from=gy">石涛：2000余港警强攻理大/中共公开否认香港司法独立</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c816932&key=eqxowaguscvmxdgc&from=gy">陈破空：美参议院闪电通过香港法案！还击土共，援手港人。智利总统谴责军警过分</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c922850&key=eqxowaguscvmxdgc&from=gy">江峰时刻：美国国会通过《香港人权与民主法案》是干涉中国内政么？</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1097991&key=eqxowaguscvmxdgc&from=gy">拉女学生入车厢 天水围数恶汉围殴逾30秒</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1098006&key=eqxowaguscvmxdgc&from=gy">中国青海关闭清真寺刑拘阿訇</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1097970&key=eqxowaguscvmxdgc&from=gy">贸易战下压力剧增 野村：中共不得不投降</a></td></tr>
