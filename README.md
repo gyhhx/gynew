@@ -4,115 +4,127 @@
 </tr>
 
 ## <请及时收藏本站以免失连> </a>
-# 外媒头条 2019年11月26日</a>
+# 外媒头条 2019年11月27日</a>
 
 <table>
 
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099335&key=eqxowaguscvmxdgc&from=gy">周晓辉：面对香港选举结果 北京尴尬蛮横回应</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099382&key=eqxowaguscvmxdgc&from=gy">香港政治巨变 新华社哑了！国际监察专家团吁林郑亲到理大 研究证实中共越打越反</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099423&key=eqxowaguscvmxdgc&from=gy">纳瓦罗：白宫在审议香港人权法案 然后送川普</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099405&key=eqxowaguscvmxdgc&from=gy">习近平演变成邓小平成功一半？中共党内保守派和自由派争论？</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099457&key=eqxowaguscvmxdgc&from=gy">中共罕见向联合国透露 “被失踪”24年的11世班禅大学毕业</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099464&key=eqxowaguscvmxdgc&from=gy">广告人发起 12.2 起罢工五日 冀其他行业响应向政府施压</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099459&key=eqxowaguscvmxdgc&from=gy">男网友转帐19亿求婚 60岁大妈求警护送领款才知…</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099440&key=eqxowaguscvmxdgc&from=gy">川青藏地严控升级</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099453&key=eqxowaguscvmxdgc&from=gy">区选建制大败证习对香港问题存误判 中南海震惊归咎西方</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099444&key=eqxowaguscvmxdgc&from=gy">【建制覆没】公民党：市民以选票与暴政割席促政府回应五大诉求、高官总辞</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099401&key=eqxowaguscvmxdgc&from=gy">【新闻看点】亲共者为何大败 3常识北京没明白</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099425&key=eqxowaguscvmxdgc&from=gy">建行中行深圳暂停按揭贷款 金融风险引关注</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099448&key=eqxowaguscvmxdgc&from=gy">【禁闻】大陆民众：香港人民用选票打脸中共</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099419&key=eqxowaguscvmxdgc&from=gy">终审大法官：香港司法独立不容置疑</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099458&key=eqxowaguscvmxdgc&from=gy">美国建立全球普通话网络 对抗中共大外宣</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099463&key=eqxowaguscvmxdgc&from=gy">养老院凭什么禁止子女看父母？这条法律要牢记</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099404&key=eqxowaguscvmxdgc&from=gy">英最高法院院长何熙怡将在香港任职1个月</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099390&key=eqxowaguscvmxdgc&from=gy">章天亮：区议会选举泛民大胜|香港局势何去何从?</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099447&key=eqxowaguscvmxdgc&from=gy">香港理大环境恶化 留守学生睡不好吃不好</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099441&key=eqxowaguscvmxdgc&from=gy">云南楚雄强拆清真寺 穆斯林民众誓死抵抗</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099402&key=eqxowaguscvmxdgc&from=gy">港民主派大翻盘 林郑称反思 北京回应强硬</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099467&key=eqxowaguscvmxdgc&from=gy">特工出逃、密件外泄及香港选举 中共四面楚歌</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099460&key=eqxowaguscvmxdgc&from=gy">香港27岁学生 以选票击败建制派政治明星</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099469&key=eqxowaguscvmxdgc&from=gy">不畏中共封杀 叶德娴：做正确的事最重要</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c816850&key=eqxowaguscvmxdgc&from=gy">石涛：中国创新向心夫妇涉违国安法 移送北检复讯</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c816932&key=eqxowaguscvmxdgc&from=gy">陈破空：香港人民大胜！官媒隐瞒不报。政治局只有五人挺习？什么情况</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1025998&key=eqxowaguscvmxdgc&from=gy">章天亮-天亮时分：区议会选举泛民大胜|香港局势何去何从?</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099456&key=eqxowaguscvmxdgc&from=gy">追击ISIS首脑的狗狗现身白宫 川普：它很顽强</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099426&key=eqxowaguscvmxdgc&from=gy">【禁闻】近千地方政府被列失信人 中共维稳现危机</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099399&key=eqxowaguscvmxdgc&from=gy">香港区议会选举民主派大胜 北京强硬回应强调香港为中国领土</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099454&key=eqxowaguscvmxdgc&from=gy">中共试图安插在澳华商渗入政界 计划外泄后商人离奇死亡</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099466&key=eqxowaguscvmxdgc&from=gy">让这条小狗脸上长尾巴是为了这个</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099443&key=eqxowaguscvmxdgc&from=gy">【区选·蓝田】最后一区公布结果问题票处理惹质疑防暴警到场</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099462&key=eqxowaguscvmxdgc&from=gy">22个人权组织致信联合国 呼吁谴责港府</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099465&key=eqxowaguscvmxdgc&from=gy">【区选·青衣盛康】质疑处理问题选票不公街坊留守至傍晚警护送票箱</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099442&key=eqxowaguscvmxdgc&from=gy">区选大胜民主路仍未许乐观 学者指京誓出台新招打压泛民</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099470&key=eqxowaguscvmxdgc&from=gy">丹麦神韵演出突然被取消 媒体与民众找真相</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099384&key=eqxowaguscvmxdgc&from=gy">何清涟：香港青年不惜“揽炒”的背后</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099424&key=eqxowaguscvmxdgc&from=gy">7项发明专利 一位女高级工程师的20年遭遇</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099471&key=eqxowaguscvmxdgc&from=gy">纪原：“五毛”网上攻击神韵 曝中共恐惧和邪恶</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099468&key=eqxowaguscvmxdgc&from=gy">波司登推高端新品 万元羽绒服销售遇冷</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099388&key=eqxowaguscvmxdgc&from=gy">歹年冬 144万名中国考生抢24000公家铁饭碗</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099409&key=eqxowaguscvmxdgc&from=gy">台团结联盟举报郭冠英及吴斯怀涉中共间谍</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099410&key=eqxowaguscvmxdgc&from=gy">张林：中共叛逃间谍王立强揭露中共罪恶</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099438&key=eqxowaguscvmxdgc&from=gy">香港选举民主派大胜 内地维权民众受鼓舞</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099445&key=eqxowaguscvmxdgc&from=gy">白宫现场 第一夫人迎接圣诞树 马背配饰有亮点</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099383&key=eqxowaguscvmxdgc&from=gy">区选泛民大胜 麦康奈尔：港人的声音被听到</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099392&key=eqxowaguscvmxdgc&from=gy">外国籍非挡箭牌 密件揭中共对海外华人潜规则</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099376&key=eqxowaguscvmxdgc&from=gy">杜彼得：出其不意 破之必也 华人在美 庄敬自强</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099435&key=eqxowaguscvmxdgc&from=gy">香港区议会选举建制派惨败 中共或误判形势</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099406&key=eqxowaguscvmxdgc&from=gy">香港选举泛民主派大胜！中共官媒一片噤声</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099420&key=eqxowaguscvmxdgc&from=gy">何清涟：香港青年不惜“揽炒”的背后</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099413&key=eqxowaguscvmxdgc&from=gy">曝光中共渗透澳议会阴谋 华裔商人离奇死亡</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099403&key=eqxowaguscvmxdgc&from=gy">不满警暴离职 香港警花参选区议会 胜出</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099398&key=eqxowaguscvmxdgc&from=gy">澳大利亚调查“令人深感不安”的中共政治介入指称</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099396&key=eqxowaguscvmxdgc&from=gy">每月成本多3万元 猪瘟让上海小餐厅生意快做不下去</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099417&key=eqxowaguscvmxdgc&from=gy">数十名区选胜选人前往理工大学 试图营救被警察围困留守者</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099421&key=eqxowaguscvmxdgc&from=gy">终审大法官：香港司法独立受基本法保护</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099439&key=eqxowaguscvmxdgc&from=gy">民主派区选压倒胜利重划香港政治版</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099416&key=eqxowaguscvmxdgc&from=gy">中日签署关键协议 迈向恢复日本牛肉出口中国</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099418&key=eqxowaguscvmxdgc&from=gy">新疆再教育营：文件披露维吾尔人如何被“洗脑”</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099422&key=eqxowaguscvmxdgc&from=gy">加拿大留学生：中共政府监控我的活动</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099455&key=eqxowaguscvmxdgc&from=gy">美国感恩节为何选在11月第4个星期四</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099452&key=eqxowaguscvmxdgc&from=gy">港媒：北京或会考虑林郑月娥去留</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099400&key=eqxowaguscvmxdgc&from=gy">美中官员：近期不可能达成两国“第二阶段”协议</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099414&key=eqxowaguscvmxdgc&from=gy">“五毛”网上攻击神韵 曝中共恐惧和邪恶</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099449&key=eqxowaguscvmxdgc&from=gy">林忌：港共区选的历史性崩盘</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099397&key=eqxowaguscvmxdgc&from=gy">美中贸易前景不确定之际 中国加大进口巴西大豆</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099387&key=eqxowaguscvmxdgc&from=gy">确定了！LVMH以近5000亿收购蒂芙尼</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099411&key=eqxowaguscvmxdgc&from=gy">陈思敏：香港选举结果传达坚定的民意</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099395&key=eqxowaguscvmxdgc&from=gy">中共加强安全产业发展 遭质疑要用来对付异议人士</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099451&key=eqxowaguscvmxdgc&from=gy">专家：中美贸易协议未定 人民币贬压升温</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099446&key=eqxowaguscvmxdgc&from=gy">【新闻看点】真假王立强？中共猛揭底闹笑话了</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099415&key=eqxowaguscvmxdgc&from=gy">患绝症员工遭网易抛弃 暴力裁员并非个例</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099412&key=eqxowaguscvmxdgc&from=gy">中共渗透四部曲 围攻台湾立法院</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099461&key=eqxowaguscvmxdgc&from=gy">90后山东维权青年杨超“三退”故事</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099408&key=eqxowaguscvmxdgc&from=gy">江苏南通“优质工程”小区新房现满墙裂缝</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099432&key=eqxowaguscvmxdgc&from=gy">真有隐形斗篷！加拿大军材新科技 战车全隐形</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099389&key=eqxowaguscvmxdgc&from=gy">路透：传台湾避免遭列汇率操纵名单 将扩大对美采购</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099436&key=eqxowaguscvmxdgc&from=gy">国际人权组织敦促联合国谴责港府侵犯集会言论自由及警暴</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099437&key=eqxowaguscvmxdgc&from=gy">炼油厂需求增加 中共进口沙特原油10月同比猛增76.3%</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099393&key=eqxowaguscvmxdgc&from=gy">患绝症员工遭网易抛弃 暴力裁员并非个例</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099407&key=eqxowaguscvmxdgc&from=gy">瘫痪3年 农妇修法轮功康复 却遭中共迫害死</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099428&key=eqxowaguscvmxdgc&from=gy">蔡英文呼吁：尊重香港选举结果</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099430&key=eqxowaguscvmxdgc&from=gy">美能源部长培瑞：上帝选定川普领导美国</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099486&key=eqxowaguscvmxdgc&from=gy">王立强老板夫妇被抓有下文 蔡英文发话 台国安局抵澳 澳洲情报官员呼吁给庇护</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099427&key=eqxowaguscvmxdgc&from=gy">年底购物网购要当心 三分之一包裹在门口被偷</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099429&key=eqxowaguscvmxdgc&from=gy">台湾朝野赞佩港人勇气 呼吁北京与港府真正面对香港民意</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099375&key=eqxowaguscvmxdgc&from=gy">瘫痪3年 农妇修法轮功康复 却遭中共迫害死</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099394&key=eqxowaguscvmxdgc&from=gy">90后山东维权青年杨超“三退”故事</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099431&key=eqxowaguscvmxdgc&from=gy">日本向中共强调：自由开放的香港持续繁荣很重要</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099434&key=eqxowaguscvmxdgc&from=gy">穆斯林被判囚22年死于教育营 尸体不给家属</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099391&key=eqxowaguscvmxdgc&from=gy">【十字路口】中共渗透四部曲 围攻台湾立法院</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099450&key=eqxowaguscvmxdgc&from=gy">美科技业IPO荣景 恐告终</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099433&key=eqxowaguscvmxdgc&from=gy">美指控 缅甸恐保有化武</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099485&key=eqxowaguscvmxdgc&from=gy">共谍渗透台港遭质疑 澳洲专家找到关键论据打脸</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099487&key=eqxowaguscvmxdgc&from=gy">禁蒙面法被判违宪 港府上诉：暴力者私隐毋须保障</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099484&key=eqxowaguscvmxdgc&from=gy">蓝牙为啥叫“蓝”牙？就不能叫白牙吗？</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099482&key=eqxowaguscvmxdgc&from=gy">学者分析 北京恐加速撤换林郑</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099477&key=eqxowaguscvmxdgc&from=gy">海风：香港之乱根源在于中共失信于港人</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099479&key=eqxowaguscvmxdgc&from=gy">涉共谍案连夜侦讯后 向心、龚青夫妻被限制出境出海</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099476&key=eqxowaguscvmxdgc&from=gy">【中国禁闻】11月25日完整版</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099480&key=eqxowaguscvmxdgc&from=gy">388：59 香港区议会选举 泛民派重创亲共派</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099481&key=eqxowaguscvmxdgc&from=gy">日本发现110岁以上超长寿者携带特殊T细胞</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099483&key=eqxowaguscvmxdgc&from=gy">夸克还有“颜色”？夸克之下是什么 或许是弦振动</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099475&key=eqxowaguscvmxdgc&from=gy">比特币暴跌至半年新低  外媒：中共打击所致</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099727&key=eqxowaguscvmxdgc&from=gy">郑中原：许其亮发声 习近平危险？</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099799&key=eqxowaguscvmxdgc&from=gy">周晓辉：川普爆北京秘密 北京沉默以对</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099765&key=eqxowaguscvmxdgc&from=gy">【新闻看点】华商神秘死亡 澳总理：深感不安</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099842&key=eqxowaguscvmxdgc&from=gy">深圳危机中心曝光 直通习近平成香港前线司令部</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099847&key=eqxowaguscvmxdgc&from=gy">王立强共谍案 蔡英文表态</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099735&key=eqxowaguscvmxdgc&from=gy">洪微：2019中共满盘皆输</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099817&key=eqxowaguscvmxdgc&from=gy">台商登报向习近平喊话 控诉周永康人马打压</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099733&key=eqxowaguscvmxdgc&from=gy">中共召见美驻华大使抗议香港法案 反碰钉子</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099789&key=eqxowaguscvmxdgc&from=gy">断网后的伊朗 一夜回到20年前</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099828&key=eqxowaguscvmxdgc&from=gy">中共再延长土地承包期限 被批“脚踩西瓜皮”</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099742&key=eqxowaguscvmxdgc&from=gy">中国祭房价「禁跌令」 地产开发商倒一片</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099746&key=eqxowaguscvmxdgc&from=gy">美驻华大使警告北京:“我们正密切关注香港局势”</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099736&key=eqxowaguscvmxdgc&from=gy">张林：中共叛逃间谍王立强揭露中共罪恶 吴敦义承认4000万经费</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099836&key=eqxowaguscvmxdgc&from=gy">彻底解禁高调复出？范冰冰登上中共官媒新闻</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099868&key=eqxowaguscvmxdgc&from=gy">王立强投诚澳洲 惊人「内幕」曝光！</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099853&key=eqxowaguscvmxdgc&from=gy">分析：习近平误判香港选情的两大原因</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099811&key=eqxowaguscvmxdgc&from=gy">理大围城十天：警方部署拘捕 校方先行搜救 示威者吁市民勿与警硬碰</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099724&key=eqxowaguscvmxdgc&from=gy">何君尧落败 餐厅推“何已完饭”现排队长龙</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099826&key=eqxowaguscvmxdgc&from=gy">向心涉违《国安法》明确 检调盼揪出中共在台情报网</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099777&key=eqxowaguscvmxdgc&from=gy">川普：美中处达协议最后关头 同时关注香港</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099820&key=eqxowaguscvmxdgc&from=gy">正妹网路交友嫁大16岁男 结婚前夕才知老公是富豪</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099818&key=eqxowaguscvmxdgc&from=gy">蓬佩奥：泄露文件证明中共迫害新疆维吾尔人</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099819&key=eqxowaguscvmxdgc&from=gy">共谍企业在港上市 谢金河：应是中共国企</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099805&key=eqxowaguscvmxdgc&from=gy">卫星可见的白蚁文明 和英国一样大 4000年历史</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099848&key=eqxowaguscvmxdgc&from=gy">吴祚来：王立强共谍案 台军情副局长的质疑靠不靠谱？</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099865&key=eqxowaguscvmxdgc&from=gy">王立强的「老板」上面还有老板？聂荣臻女儿女婿浮出水面</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099753&key=eqxowaguscvmxdgc&from=gy">魏京生：区选胜利 中共暴政惊醒了香港人民和国际社会 小习没傻到家</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099790&key=eqxowaguscvmxdgc&from=gy">叛变的共谍VS善变的中共 大家会信谁？</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099829&key=eqxowaguscvmxdgc&from=gy">伊里哈木：中共对新疆的镇压作为 已照搬香港</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099812&key=eqxowaguscvmxdgc&from=gy">袁红冰：支持香港的反抗运动 就是在摧毁中共暴政</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099864&key=eqxowaguscvmxdgc&from=gy">向心妻龚青正面照曝光 在台匿名买豪宅却自己不住</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099779&key=eqxowaguscvmxdgc&from=gy">香港区选 建制派惨败 中共怪美国遭炮轰</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099784&key=eqxowaguscvmxdgc&from=gy">挤兑潮 资金危机 中国央行承认中小银行高风险</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099808&key=eqxowaguscvmxdgc&from=gy">美国务卿就香港区选祝贺香港人民 谴责共产党压制人权</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099845&key=eqxowaguscvmxdgc&from=gy">川普给习的建议对香港事件的影响《李天笑快评》（207期）</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099774&key=eqxowaguscvmxdgc&from=gy">川普：美中接近达成贸易协议 美挺香港示威民众</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099792&key=eqxowaguscvmxdgc&from=gy">一亿年前的蛇原来有脚</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099866&key=eqxowaguscvmxdgc&from=gy">向心夫妇凶多吉少？台国安局动手前开反恐级会议</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099807&key=eqxowaguscvmxdgc&from=gy">区议会选后港示威者再次堵路 高呼“救学生”口号</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099838&key=eqxowaguscvmxdgc&from=gy">港区选泛民大胜 中共洗脑面临破产（上）</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099757&key=eqxowaguscvmxdgc&from=gy">美中贸易通话 中共鹰派党媒曝光现阶段谈判陷僵局</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099745&key=eqxowaguscvmxdgc&from=gy">国际局势诡谲 大摩：别说明年、预测未来2个月股市都难</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099756&key=eqxowaguscvmxdgc&from=gy">白宫顾问康威：真的接近达成第1阶段协议 但这3项陷胶着</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099825&key=eqxowaguscvmxdgc&from=gy">中共大学不简单 澳洲智库发警告</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099827&key=eqxowaguscvmxdgc&from=gy">美国政界纷纷祝贺香港民主派 学者吁中国解放思想</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099752&key=eqxowaguscvmxdgc&from=gy">拿港警跟美警比 却不知美国抗争者不会被警察白打</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099731&key=eqxowaguscvmxdgc&from=gy">湖南操场埋尸案 两级官员警察当保护伞</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099798&key=eqxowaguscvmxdgc&from=gy">中共介入台选举 学者揭资金渗透手法</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099839&key=eqxowaguscvmxdgc&from=gy">香港区选结果表明公众对政治改革的渴望</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099837&key=eqxowaguscvmxdgc&from=gy">歌迷推《愿荣光归香港》入围叱咤乐坛流行榜</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099869&key=eqxowaguscvmxdgc&from=gy">世界首款失重行李箱 装再多东西也不费劲 弱女子也能拉动</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099870&key=eqxowaguscvmxdgc&from=gy">为什么铁是最稳定的金属？难道排在之后的金不比铁更稳定吗？</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099732&key=eqxowaguscvmxdgc&from=gy">向心与龚青涉共谍 台学者吁与澳洲合作侦办</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099824&key=eqxowaguscvmxdgc&from=gy">“独立检讨”代“独立调查” 学者泛民疑林郑偷天换日</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099841&key=eqxowaguscvmxdgc&from=gy">【禁闻】11月26日维权动态</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099809&key=eqxowaguscvmxdgc&from=gy">美国10月商品贸易逆差大幅收窄</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099751&key=eqxowaguscvmxdgc&from=gy">石铭：让悲剧不再重演</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099726&key=eqxowaguscvmxdgc&from=gy">夏小强：香港抗议者是在搞独立和分裂吗？</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099763&key=eqxowaguscvmxdgc&from=gy">【新闻看点】港区选翻车北京恼怒 林郑或悬了</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099803&key=eqxowaguscvmxdgc&from=gy">iPhone 12升级四颗镜头、玫瑰粉新色？</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099769&key=eqxowaguscvmxdgc&from=gy">【热点互动】香港区选举如何影响政局走向？</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099740&key=eqxowaguscvmxdgc&from=gy">中国金融地雷多！586家银行、6.3万亿公司债亮红灯</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099743&key=eqxowaguscvmxdgc&from=gy">时尚品牌Old Navy将在明年起关闭所有中国门市</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099846&key=eqxowaguscvmxdgc&from=gy">林郑称未被北京究责 不打算下台</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099775&key=eqxowaguscvmxdgc&from=gy">警围香港理大第10天 4议员喊话： 再围下去没意义</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099758&key=eqxowaguscvmxdgc&from=gy">美中贸易谈判代表星期二电话通话</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099871&key=eqxowaguscvmxdgc&from=gy">人工智能的兴起是福还是祸？</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099872&key=eqxowaguscvmxdgc&from=gy">中共间谍案 曾韦祯：你敢相信翁衍庆？</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099867&key=eqxowaguscvmxdgc&from=gy">王立强共谍案 台湾查向心投资信义区两豪宅</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099823&key=eqxowaguscvmxdgc&from=gy">香港特首承认民众不满 政府要反省 但拒绝作出新让步</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099760&key=eqxowaguscvmxdgc&from=gy">美国最高法院暂停执行众议院寻求获得特朗普财务信息的传票</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099802&key=eqxowaguscvmxdgc&from=gy">空前的宇宙模拟系统出炉</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099794&key=eqxowaguscvmxdgc&from=gy">半个大脑仍正常工作 启发脑损伤治疗</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099787&key=eqxowaguscvmxdgc&from=gy">香港中联办主任据传将遭撤换 北京否认</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099738&key=eqxowaguscvmxdgc&from=gy">天津物产爆财务危机 恐成中国20年来最大国企违约</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099852&key=eqxowaguscvmxdgc&from=gy">P2P平台频出事  中共又推外贸电商平台</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099810&key=eqxowaguscvmxdgc&from=gy">香港一男子因向警察吐口水等罪被判10个月监禁</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099840&key=eqxowaguscvmxdgc&from=gy">【名家专栏】你超重吗？食品巨头希望如此</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099791&key=eqxowaguscvmxdgc&from=gy">新照片：从射电波段看到的壮丽银河</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099782&key=eqxowaguscvmxdgc&from=gy">中共用政治超限战祸乱香港</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099766&key=eqxowaguscvmxdgc&from=gy">挤兑潮 资金危机 央行承认中小银行高风险</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099844&key=eqxowaguscvmxdgc&from=gy">【禁闻】“明慧网恶人榜”更新 恶人名单破10万</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099797&key=eqxowaguscvmxdgc&from=gy">香港区选建制派惨败 传王志民将被撤换</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099800&key=eqxowaguscvmxdgc&from=gy">【禁闻】区选结束 各界营救香港理大被困示威者</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099768&key=eqxowaguscvmxdgc&from=gy">被曝光的香港“中国创新”曾高调投资军工业</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099737&key=eqxowaguscvmxdgc&from=gy">爆买潮已过 专家：中国消费疲软恐让金价难有涨势</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099843&key=eqxowaguscvmxdgc&from=gy">【禁闻】11月26日退党精选</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099750&key=eqxowaguscvmxdgc&from=gy">任世豪：国际聚焦“中共活摘器官”</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099804&key=eqxowaguscvmxdgc&from=gy">WTO预算案 美有条件支持</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099773&key=eqxowaguscvmxdgc&from=gy">奥迪拚转型电动车 6年内将裁员9500人</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099767&key=eqxowaguscvmxdgc&from=gy">中共用政治超限战祸乱香港</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099806&key=eqxowaguscvmxdgc&from=gy">刺激措施失去威力…葛洛斯：美股明年持平或跌10%</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099772&key=eqxowaguscvmxdgc&from=gy">日本伊藤忠商事一雇员被中共判刑3年</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099786&key=eqxowaguscvmxdgc&from=gy">墨尔本华商再被曝欲出资千万进驻澳敏感大楼</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099822&key=eqxowaguscvmxdgc&from=gy">香港一女子因2016年参与骚乱被判刑46个月</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099816&key=eqxowaguscvmxdgc&from=gy">欲阻律师接法轮功案 河北司法官威胁其父母</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099781&key=eqxowaguscvmxdgc&from=gy">澳洲各界谴责歹徒纵火袭击香港大纪元印刷厂</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099771&key=eqxowaguscvmxdgc&from=gy">美墨边境 为何中国公民频频非法偷渡？</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099734&key=eqxowaguscvmxdgc&from=gy">海风：在中共眼里 民意表达就是“煽颠罪”</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099725&key=eqxowaguscvmxdgc&from=gy">冤狱10年 陕西优秀教师佘程邦含冤离世</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099793&key=eqxowaguscvmxdgc&from=gy">丝叶狸藻叶子如何长成杯状？</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099755&key=eqxowaguscvmxdgc&from=gy">11年来最大跌幅！惠誉：今年全球汽车销量恐大减310万辆</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099739&key=eqxowaguscvmxdgc&from=gy">人行：中国家庭债务佔GDP 60％ 债务总额相当于家庭收入总和</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099761&key=eqxowaguscvmxdgc&from=gy">印尼逮捕85名中国籍电信欺诈案嫌犯</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099821&key=eqxowaguscvmxdgc&from=gy">小型股冲高 美股好兆头</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099754&key=eqxowaguscvmxdgc&from=gy">「中国电文」曝监禁维族 西门子被要求应负起关注人权义务</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099788&key=eqxowaguscvmxdgc&from=gy">德国德累斯顿绿穹珍宝馆遭窃 丢失10亿欧元珠宝</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099744&key=eqxowaguscvmxdgc&from=gy">「收入不足」才是根源 黑石CEO：富人税无法解决财富问题</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099770&key=eqxowaguscvmxdgc&from=gy">美国商务部对中国产某些胶合板规避关税作出终裁</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099778&key=eqxowaguscvmxdgc&from=gy">山东泰安政协前副主席谭业刚被判15年徒刑</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099783&key=eqxowaguscvmxdgc&from=gy">被曝光的香港“中国创新”曾高调投资军工业</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099780&key=eqxowaguscvmxdgc&from=gy">毁损撑港大字报 5名在韩中国留学生被立案</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099764&key=eqxowaguscvmxdgc&from=gy">参议员：美不想统治世界 但应阻中共霸权</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099741&key=eqxowaguscvmxdgc&from=gy">香港出口连12黑、10月创近4年最大跌幅</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099730&key=eqxowaguscvmxdgc&from=gy">为中共做间谍 美籍华人导游认罪</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099759&key=eqxowaguscvmxdgc&from=gy">美国商务部着手制定保护电讯网络安全规定</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099785&key=eqxowaguscvmxdgc&from=gy">加智库揭中共渗透加拿大商界及学术界</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1099835&key=eqxowaguscvmxdgc&from=gy">蓬佩奥祝贺香港区选：美继续支持民主价值</a></td></tr>
 
 </table>
