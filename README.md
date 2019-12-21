@@ -7,10 +7,13 @@
 # 墙外头条 2019年12月21日</a>
 
 <table>
-<
+
 <tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1109191&key=eqxowaguscvmxdgc&from=gy">中共进最后疯狂非常时期？ 国内外样样事都这么邪门  连当局灭火都顾不过来了</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1109293&key=eqxowaguscvmxdgc&from=gy">习近平澳门讲话出现口误 央视急下令勿重播</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1109264&key=eqxowaguscvmxdgc&from=gy">周晓辉：习访澳门安保严密与京城传诡异消息</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c816850&key=eqxowaguscvmxdgc&from=gy">石涛：BBC：习近平澳门演讲再口误 盛赞「香港一国两制」之典范</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c816932&key=eqxowaguscvmxdgc&from=gy">陈破空：习近平行走澳门，亲自证明一件事。查办薄熙来的那人以案谋私？复旦学生齐嘘某常委</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c922850&key=eqxowaguscvmxdgc&from=gy">江峰时刻：再次重拳出击！ 《西藏政策和支持法案》出台，个人之外多了一个国家级制裁手段；聊聊蒋经国日记和北京的双修乱象</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1109277&key=eqxowaguscvmxdgc&from=gy">全球第二大操作系统开启死亡倒计时!微软将开启蓝屏警告:还剩26天</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1109225&key=eqxowaguscvmxdgc&from=gy">在习近平面前不唱国歌！香港特首林郑丈夫超狂行为网疯传</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1109296&key=eqxowaguscvmxdgc&from=gy">仿效香港抗争 网民发起非暴力罢用微信行动</a></td></tr>
