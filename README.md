@@ -1,105 +1,86 @@
 ## <请及时收藏本站 https://git.io/gynew 以免失连> </a>
-# 墙外头条 2020年04月16日</a>
+# 墙外头条 2020年04月17日</a>
 
 
 <table>
 
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157443&key=exgxucyqmkwgvwch&from=gy">网友直击：广州天马服装批发市场门口出现随地倒  广州危急？（视频）</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157494&key=exgxucyqmkwgvwch&from=gy">港媒：中国“病人”习近平</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157473&key=exgxucyqmkwgvwch&from=gy">混乱性关系链惹祸 哈尔滨男间接传染18人456隔离</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157514&key=exgxucyqmkwgvwch&from=gy">戴口罩到底有多重要？多项专家研究告诉你</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157511&key=exgxucyqmkwgvwch&from=gy">美军方称中共病毒或为自然产生</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157526&key=exgxucyqmkwgvwch&from=gy">在俄台商：俄方驱逐数十万非法中国移⺠</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157529&key=exgxucyqmkwgvwch&from=gy">中共隐瞒砸自己脚 疫情不明令北京紧张</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157510&key=exgxucyqmkwgvwch&from=gy">剑桥大学学者：中共病毒传播始于中国 地点或是广东</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157528&key=exgxucyqmkwgvwch&from=gy">周晓辉：川普不给北京留面子 参议员提法案抗共</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157516&key=exgxucyqmkwgvwch&from=gy">中共水军大撒假信息 国际社会如何应对？</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157504&key=exgxucyqmkwgvwch&from=gy">中共「红头文件」被曝光！北京1/3就知疫情严重</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157520&key=exgxucyqmkwgvwch&from=gy">【现场视频】外国人不戴口罩 被北京保安摁翻在地</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157527&key=exgxucyqmkwgvwch&from=gy">无视患者安危 中共强推中成药迫停瑞德西韦</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157530&key=exgxucyqmkwgvwch&from=gy">程晓容：美国审查世卫并暂停资助 重击中共</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157507&key=exgxucyqmkwgvwch&from=gy">小伙研发灭毒器：中共病毒5分钟内全被消灭</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157512&key=exgxucyqmkwgvwch&from=gy">中国黑龙江成抗疫第一线 专家称绥芬河形势严峻</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157524&key=exgxucyqmkwgvwch&from=gy">哈尔滨卫健委主任秦德亮被免职 劣迹斑斑</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157493&key=exgxucyqmkwgvwch&from=gy">不满总统老爸挨批！川普长子建议CNN改名「习NN」</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157523&key=exgxucyqmkwgvwch&from=gy">蓬佩奥与杨洁篪通话 要求中方抗疫资讯透明</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157535&key=exgxucyqmkwgvwch&from=gy">台湾抗疫超前部署 原来是看到了李文亮的贴文</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157519&key=exgxucyqmkwgvwch&from=gy">【现场视频】疫情下 中共又开始挖坟圈地</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157502&key=exgxucyqmkwgvwch&from=gy">【纪元播报】刀笔齐握 中共网军运作解密</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157452&key=exgxucyqmkwgvwch&from=gy">辽宁高中英语女教师李凤美悲惨离世</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157451&key=exgxucyqmkwgvwch&from=gy">【有冇搞错】官媒遭嘲笑 共产党其实很虚弱</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157536&key=exgxucyqmkwgvwch&from=gy">WHO can help？台湾登纽时广告 WHO13点声明回应</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157462&key=exgxucyqmkwgvwch&from=gy">公开起诉政府隐瞒疫情 谭军：必须有人担责</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157522&key=exgxucyqmkwgvwch&from=gy">【纪元播报】捷克没收口罩 中共侨领遭起底</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157469&key=exgxucyqmkwgvwch&from=gy">哈尔滨封闭小区医院挤爆 民众忧封城</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157509&key=exgxucyqmkwgvwch&from=gy">香港中联办主任呼吁尽快在港推出国家安全立法</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157537&key=exgxucyqmkwgvwch&from=gy">瑞德西韦/中共不择手段 美国在中国实验受阻</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157547&key=exgxucyqmkwgvwch&from=gy">中共内参：1月12日北上深都有确诊病例</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157539&key=exgxucyqmkwgvwch&from=gy">研究指中共限制上游流量 引发湄公河流域多国大旱</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157521&key=exgxucyqmkwgvwch&from=gy">【纪元播报】中共病毒在俄扩散 俄中关系微妙</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157501&key=exgxucyqmkwgvwch&from=gy">中共的另类“一带一路” 谭德塞曾力挺</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157475&key=exgxucyqmkwgvwch&from=gy">中国毕业生就业大跌三成 专家警告粮荒逼近</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157450&key=exgxucyqmkwgvwch&from=gy">香港中联办高层再异动 江西帮副主任被免职</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157513&key=exgxucyqmkwgvwch&from=gy">史上最亮超新星被发现 或由两颗大恒星合成</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157534&key=exgxucyqmkwgvwch&from=gy">地方隐瞒疫情中共设防火墙 进京要经过多重审查</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157495&key=exgxucyqmkwgvwch&from=gy">抗衡华尔街巨头 传中共拟合并两大券商</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157476&key=exgxucyqmkwgvwch&from=gy">【江峰时刻】川普老辣 呛美国之音前先做这事儿</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157463&key=exgxucyqmkwgvwch&from=gy">原中顾委副秘书长去世 文革时曾遭受迫害</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157496&key=exgxucyqmkwgvwch&from=gy">香港籍的中国油轮在伊朗被扣 船名叫「SC Taipei」</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157454&key=exgxucyqmkwgvwch&from=gy">英多名资深政要批中共 要求调查零号病人</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157497&key=exgxucyqmkwgvwch&from=gy">印度高官减薪抗疫 受财政压力中共官员会否“抄作业”？</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157491&key=exgxucyqmkwgvwch&from=gy">亲中共立场遭起底！明居正爆：谭德塞有共产党背景</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157464&key=exgxucyqmkwgvwch&from=gy">陆首季GDP即将出炉 中共造势 业界看衰</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157455&key=exgxucyqmkwgvwch&from=gy">护士不算一线？武汉感染护士曝补助不公</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157525&key=exgxucyqmkwgvwch&from=gy">美参议员提法案 助大瘟疫受害者起诉中共</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157447&key=exgxucyqmkwgvwch&from=gy">减产协议无力挽回！国际油价续挫 再度跌破20美元</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157515&key=exgxucyqmkwgvwch&from=gy">俄国今又添3388例确诊创新高 近2.5万人染疫</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157518&key=exgxucyqmkwgvwch&from=gy">【直播回放】4·15美国疫情发布会 死亡超2.8万</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157466&key=exgxucyqmkwgvwch&from=gy">宇心：全面改称“中共”是追责中共的关键</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157448&key=exgxucyqmkwgvwch&from=gy">油价战新苦主！新加坡石油巨头曝险30亿美元、遭拒发信用状</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157474&key=exgxucyqmkwgvwch&from=gy">石铭：大疫下肆意残害善良民众的辽宁省</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157500&key=exgxucyqmkwgvwch&from=gy">外媒：中共延迟通报疫情长达6周</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157538&key=exgxucyqmkwgvwch&from=gy">美议员函谭德塞拿疫情通讯 将办听证会查世卫助中共隐瞒</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157545&key=exgxucyqmkwgvwch&from=gy">疫情下 大陆6城刚放松楼市限购政策又取消</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157546&key=exgxucyqmkwgvwch&from=gy">川普要追究世卫责任 调查疫情 反击中共影响</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157465&key=exgxucyqmkwgvwch&from=gy">郑纯清：装神的中共连人都装不成了</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157540&key=exgxucyqmkwgvwch&from=gy">疫情当下 美中如何反垄断？</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157508&key=exgxucyqmkwgvwch&from=gy">中共疫情期间加强整建军备秀军力 台湾如何应对？</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157477&key=exgxucyqmkwgvwch&from=gy">【老北京茶馆】俄罗斯华人被拒入国门 黑龙江中俄边境抓特务？</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157472&key=exgxucyqmkwgvwch&from=gy">重庆30多名访民举行“维权誓师”行动</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157503&key=exgxucyqmkwgvwch&from=gy">迎接挑战 美国国务卿对中共与中国的认知（上）</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157467&key=exgxucyqmkwgvwch&from=gy">理悟：中共苦果自吞</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157488&key=exgxucyqmkwgvwch&from=gy">美国防长：中共仍不提供中共病毒相关资讯</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157506&key=exgxucyqmkwgvwch&from=gy">又可以拿钱了 美16汽车保险公司退保费 查查你能退多少</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157543&key=exgxucyqmkwgvwch&from=gy">赞歌手韦礼安英文好 黄子佼提谭德塞全场笑翻</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157489&key=exgxucyqmkwgvwch&from=gy">美媒：美国总统应承认台湾国家地位 消除虚构的一中政策</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157544&key=exgxucyqmkwgvwch&from=gy">美多名议员批中共和世卫 支持川普停止拨款</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157478&key=exgxucyqmkwgvwch&from=gy">李铭：瘟疫有眼 退党脱险</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157492&key=exgxucyqmkwgvwch&from=gy">WHO在干嘛？「全球旅行建议」更新仍停留在2月底</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157552&key=exgxucyqmkwgvwch&from=gy">先整习仲勋后“叛党自杀”的阎红彦</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157505&key=exgxucyqmkwgvwch&from=gy">香港各界关注路透社报道 资深法官忧司法独立受中共攻击</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157486&key=exgxucyqmkwgvwch&from=gy">英国军情六局前局长：中共隐瞒了中共病毒初期的暴发</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157498&key=exgxucyqmkwgvwch&from=gy">【新闻看点】配合中共误导世界 世卫被美断金援</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157460&key=exgxucyqmkwgvwch&from=gy">中国航空业Q1整体亏损398亿元、旅客运量砍半</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157461&key=exgxucyqmkwgvwch&from=gy">英国债务水平飙升 恐面临300年最严重萎缩</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157453&key=exgxucyqmkwgvwch&from=gy">美CDC：约20个州可望在五一重新开放</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157468&key=exgxucyqmkwgvwch&from=gy">伍新：解“争夺群众” 对法轮功的迫害实质是对全人类的迫害</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157484&key=exgxucyqmkwgvwch&from=gy">IMF：疫情大流行可能会引发一些国家社会动荡</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157483&key=exgxucyqmkwgvwch&from=gy">美国州议员：疫情染遍全世界 中共“红手”试图伸进美议会</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157459&key=exgxucyqmkwgvwch&from=gy">疫情雪上加霜 汉堡王纽西兰分公司宣布破产</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157490&key=exgxucyqmkwgvwch&from=gy">白宫追究世卫责任 指台湾曾发警告却未被公开</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157471&key=exgxucyqmkwgvwch&from=gy">【一线采访】武汉中心医院患者 被绑3天去世</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157548&key=exgxucyqmkwgvwch&from=gy">覃永沛案牵涉国家机密恐遭秘密审讯</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157499&key=exgxucyqmkwgvwch&from=gy">【疫情中的纽约人】自省的台商</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157517&key=exgxucyqmkwgvwch&from=gy">内幕：1月中关键6天 中共瞒疫情酿大祸</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157485&key=exgxucyqmkwgvwch&from=gy">巴西两位州长感染2019中共病毒</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157482&key=exgxucyqmkwgvwch&from=gy">在中国的非洲人抱怨与中共病毒疫情有关的歧视</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157549&key=exgxucyqmkwgvwch&from=gy">俄罗斯台商: 俄罗斯驱逐百万非法中国移⺠是事实</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157481&key=exgxucyqmkwgvwch&from=gy">美CDC：约20个州可望在五一重新开放</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157487&key=exgxucyqmkwgvwch&from=gy">德国延长实施社交距离规定 部分商家下周恢复营业</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157480&key=exgxucyqmkwgvwch&from=gy">路透：渣打通知员工勿用Zoom和Google Hangouts</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157551&key=exgxucyqmkwgvwch&from=gy">美国暂停金援世卫 欧盟深感遗憾</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157550&key=exgxucyqmkwgvwch&from=gy">批中共隐瞒疫情 加拿大掀起制裁中共官员声浪</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1158017&key=exgxucyqmkwgvwch&from=gy">中共渲染“武装政变案” 原来是党校教师要直选</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1158030&key=exgxucyqmkwgvwch&from=gy">【现场视频】绥芬河会成为下一个湖北？</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1158031&key=exgxucyqmkwgvwch&from=gy">赵立坚“美军投毒”论 被指源于中共军事专家</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157998&key=exgxucyqmkwgvwch&from=gy">颜丹：意大利现惊心一幕 疫情是神对人的警示</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1158032&key=exgxucyqmkwgvwch&from=gy">福克斯：武汉病毒泄露致瘟疫流行 中共隐瞒疫情时间线</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1158018&key=exgxucyqmkwgvwch&from=gy">方方日记在海外出版引发的轩然大波</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1158016&key=exgxucyqmkwgvwch&from=gy">1200美金到账了 华人纷纷晒信息分享喜悦！</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1158000&key=exgxucyqmkwgvwch&from=gy">林泉：新疆又听核试爆</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1158026&key=exgxucyqmkwgvwch&from=gy">谭德塞为何对中共言听计从？</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1158012&key=exgxucyqmkwgvwch&from=gy">病毒来源是武汉病毒所？美外交电报两年前曾示警</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1158028&key=exgxucyqmkwgvwch&from=gy">【一线采访视频版】黑龙江疫情延烧 绥芬河堪忧</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1158025&key=exgxucyqmkwgvwch&from=gy">【微视频】要求中共免除债务不如远离它</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1158033&key=exgxucyqmkwgvwch&from=gy">【禁闻】中共强推复工 大陆工厂接连离奇起火</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1158022&key=exgxucyqmkwgvwch&from=gy">香港万州国际美国工厂 成最大病毒爆发中心</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1158009&key=exgxucyqmkwgvwch&from=gy">八十国联军索赔可行吗？ 后疫情时代各国等着找中共算帐</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1158019&key=exgxucyqmkwgvwch&from=gy">陈秉中：毒疫苗没解决 中共没资格生产疫苗</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1158029&key=exgxucyqmkwgvwch&from=gy">【现场视频】中共治下乱象 某口罩作坊被停工</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1158024&key=exgxucyqmkwgvwch&from=gy">美防长：很难相信来自中国共产党的信息</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1158037&key=exgxucyqmkwgvwch&from=gy">林耶凡在牛津联盟演讲：中共思维与中共病毒</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1158042&key=exgxucyqmkwgvwch&from=gy">【禁闻】4月16日疫情爆料</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1158044&key=exgxucyqmkwgvwch&from=gy">甄言：保两会 中共禁止对京销售病毒检测产品</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1158027&key=exgxucyqmkwgvwch&from=gy">美国务院：中共限制大批美国救援物资离境 赵立坚否认</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1158006&key=exgxucyqmkwgvwch&from=gy">噩梦来临 中共病毒已出现严重变异 疫苗开发或成徒劳</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1158013&key=exgxucyqmkwgvwch&from=gy">李文亮吹哨的待遇台湾、中国天壤有别 台湾官员表达谢意</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1158036&key=exgxucyqmkwgvwch&from=gy">刘青：美国正面回击中共谣言的必要性</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1158043&key=exgxucyqmkwgvwch&from=gy">掸封尘：知骗而后勇——从“粉红”到“恨红”</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1158021&key=exgxucyqmkwgvwch&from=gy">英外交大臣：应深入审查中共对病毒爆发回应</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1158023&key=exgxucyqmkwgvwch&from=gy">全球大瘟疫 凸显中共紧紧控制世卫和联合国</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1158020&key=exgxucyqmkwgvwch&from=gy">【瘟疫与中共】德国巴伐利亚 神佑之地的迷失</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1158005&key=exgxucyqmkwgvwch&from=gy">北京如临大敌！俄国被爆驱逐近百万非法中国移民</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1158010&key=exgxucyqmkwgvwch&from=gy">战狼外交受挫 中共驻塞浦路斯大使推特“违规”被封</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1158015&key=exgxucyqmkwgvwch&from=gy">三家美媒体同日发文：为何加州防疫比纽约好？</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157985&key=exgxucyqmkwgvwch&from=gy">掸封尘：上将被中将当众打耳光</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1158001&key=exgxucyqmkwgvwch&from=gy">同性恋和多种性倾向社区面临中共病毒的严重冲击</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157997&key=exgxucyqmkwgvwch&from=gy">【禁闻】美国政府纾困金到账 旅美华人赞办实事</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157999&key=exgxucyqmkwgvwch&from=gy">奕云天：摒弃邪党，匹夫有责</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157984&key=exgxucyqmkwgvwch&from=gy">武汉街头惊现大字报 威胁要对方方“文攻武伐”</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1158014&key=exgxucyqmkwgvwch&from=gy">多国急解封锁 欧盟吁统一免疫情再扩散</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1158011&key=exgxucyqmkwgvwch&from=gy">台湾单日再“清零” 致死率远低于全球平均</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157986&key=exgxucyqmkwgvwch&from=gy">强令销毁病毒样本 中共卫健委“三号文”全文曝光</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1158034&key=exgxucyqmkwgvwch&from=gy">网友直击：哈尔滨出现随地倒  二次爆发出现了（视频）</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1158003&key=exgxucyqmkwgvwch&from=gy">中共舆论评说特朗普对世卫“动真格”</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157987&key=exgxucyqmkwgvwch&from=gy">台立委披露数份大陆文件 各地新一波疫情抬头</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157996&key=exgxucyqmkwgvwch&from=gy">李晨名誉权官司败诉 须承担千余元案件受理费</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157991&key=exgxucyqmkwgvwch&from=gy">追究中共责任 英国代理首相：英中关系回不去了</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157983&key=exgxucyqmkwgvwch&from=gy">中共记者回答川普“来自台湾”陆委会：将查处</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157994&key=exgxucyqmkwgvwch&from=gy">天文学家在300光年外找到了第二颗地球</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1158035&key=exgxucyqmkwgvwch&from=gy">武汉大嫂怒斥小粉红们在构陷国家  在祸国殃民（视频）</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157978&key=exgxucyqmkwgvwch&from=gy">日本砸预算助企业脱中 中共当局紧张</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1158004&key=exgxucyqmkwgvwch&from=gy">不再是梦！麻省理工专家研制出梦境操控设备</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1158008&key=exgxucyqmkwgvwch&from=gy">北约密切关注中共大外宣 检讨医疗物资依赖中共</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157955&key=exgxucyqmkwgvwch&from=gy">福克斯:多个信源证实 中共病毒来自武汉实验室</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157958&key=exgxucyqmkwgvwch&from=gy">反讽中共箝制言论 “今天北京有点热”微博爆红</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157993&key=exgxucyqmkwgvwch&from=gy">G7领袖视讯会议 共抗疫情并呼吁WHO改革</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1158007&key=exgxucyqmkwgvwch&from=gy">亚马逊出现死于中共病毒首个员工 确诊病例超70人</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157957&key=exgxucyqmkwgvwch&from=gy">热帖：庚子年八十国联军索赔之可行性研究报告</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157981&key=exgxucyqmkwgvwch&from=gy">中共接连叫嚣武统 台湾：不屈服威胁</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157966&key=exgxucyqmkwgvwch&from=gy">炒作“渴望回归中国”文章 中共大外宣受挫</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157992&key=exgxucyqmkwgvwch&from=gy">研究：人群免疫度达80%才算抗疫成功 社交距离要保持到2022年</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157959&key=exgxucyqmkwgvwch&from=gy">《石涛聚焦》台湾-中华民国 快速重返国际舞台</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157967&key=exgxucyqmkwgvwch&from=gy">五年首次 穆迪下调大陆房地产展望至负面</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157976&key=exgxucyqmkwgvwch&from=gy">美股投资人注意！专家：未来45天将是美金融史上最关键时期</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157990&key=exgxucyqmkwgvwch&from=gy">不堪疫击 美五龙头银行重摔</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157982&key=exgxucyqmkwgvwch&from=gy">中共新出口限制措施 拖延美企运回医疗物资</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157977&key=exgxucyqmkwgvwch&from=gy">美国重启经济无法「一体适用」 家得宝创办人：政府不应过度插手</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157974&key=exgxucyqmkwgvwch&from=gy">香港零售业迎来悽惨下半年 恐逾1.5万店铺歇业</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1158002&key=exgxucyqmkwgvwch&from=gy">又增728例创新高 新加坡确诊破4000例</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157980&key=exgxucyqmkwgvwch&from=gy">【新闻看点】瞒报遭美欧起底 中共外交丑闻频曝</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157964&key=exgxucyqmkwgvwch&from=gy">99岁英老兵挑战自己 筹千万英镑支持医护</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157972&key=exgxucyqmkwgvwch&from=gy">上周初请失业金再增525万人 美国失业率至少约17％</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157975&key=exgxucyqmkwgvwch&from=gy">美中小企3490亿美元纾困本周恐耗尽！财长出面吁增加拨款</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157989&key=exgxucyqmkwgvwch&from=gy">财经观测站》中国占尽全球化便宜</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157979&key=exgxucyqmkwgvwch&from=gy">台湾将向日本捐赠200万片口罩帮助抗击疫情</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157973&key=exgxucyqmkwgvwch&from=gy">美官员发推 曝光谭德塞和赵立坚一唱一和</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157988&key=exgxucyqmkwgvwch&from=gy">美国防部长与国务卿批评中共在疫情问题上误导</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157956&key=exgxucyqmkwgvwch&from=gy">项云：封城后的一点感受</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1157965&key=exgxucyqmkwgvwch&from=gy">美前国防官员：让台湾入世卫 台专家任总干事</a></td></tr>
 
 
 </table>
