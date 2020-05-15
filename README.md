@@ -1,6 +1,6 @@
 <table>  
   <tr>
-    <td colspan="2" align="center">微信如提示停止访问该网页，须<br/>先点击右上角，选择浏览器打开</td>
+    <td colspan="2" align="center">微信如提示停止访问该网页，须<br/>先点击右上角三个点，选择浏览器打开</td>
   <tr>
   <tr>
     <td colspan="2" align="center"><a href="https://gitcdn.xyz/cdn/otiny/up/master/show005.htm">网页精简版</a><br/>进入后可以点击底部：动态网址</td>
