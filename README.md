@@ -19,12 +19,10 @@
     <td align="center"><a href="https://cdn.jsdelivr.net/gh/opipe/up/oPipe.apk">环通安卓版</a></td>
     <td align="center"><a href="https://raw.githubusercontent.com/opipe/up/master/oPipe.zip">环通电脑版</a></td>
   </tr>
-  <tr>
-    <td colspan="2" align="center"><img src="https://cdn.jsdelivr.net/gh/opipe/up/oGate640.jpg"/></td>
-  </tr>
 </table>
 
 ## <请及时收藏本站 https://git.io/gynew 以免失连> </a>
+# 封锁严重 如下方头条打不开的 请暂用上方“精简版”，安卓用户及时下载“环门安卓版”，苹果用户打开精简版以后根据上方提示及时下载app
 # 墙外头条 2020年05月15日</a>
 
 
