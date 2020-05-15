@@ -1,7 +1,4 @@
-<table>
-  <tr>
-    <td colspan="2" align="center"><img src="https://cdn.jsdelivr.net/gh/opipe/up/oGate65.jpg"/></td>
-  </tr>
+<table>  
   <tr>
     <td colspan="2" align="center">微信如提示停止访问该网页，须<br/>先点击右上角，选择浏览器打开</td>
   <tr>
@@ -21,8 +18,7 @@
   </tr>
 </table>
 
-## 封锁严重 如下方头条无法打开 请点右上角三个点-->“在浏览器打开”-->"网页精简版”
-## 安卓用户及时下载“环门安卓版”，苹果用户打开精简版后根据上方提示及时下载app
+## 安卓用户及时下载“环门安卓版”
 ## <请及时收藏本站 https://git.io/gynew 以免失连> </a>
 # 墙外头条 2020年05月15日</a>
 
