@@ -467,7 +467,7 @@
 <tr><td colspan="2" align="left"><a href="https://img.xgtfd.press/?name=c1170621&key=avwjjojsereqbbyt&from=gy">疫情下戴口罩产子 日女星用力过度致尾椎骨折</a></td></tr>
 
 
-<tr><td colspan="2" align="left"><a href="https://img.xgtfd.press/?name=c1170622&key=avwjjojsereqbbyt&from=gy">中共利用疫情进行虚假宣传 刻意打造信息战</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://is.gd/G4trq2">中共利用疫情进行虚假宣传 刻意打造信息战</a></td></tr>
 
 
 </table>
